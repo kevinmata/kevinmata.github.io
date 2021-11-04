@@ -2,6 +2,6 @@
 
 Will be posting more information on here.
 
-Word doc Passcode: 1231v9ds
+Website work well in Edge
 
 Don't forget to be sure to check this out
