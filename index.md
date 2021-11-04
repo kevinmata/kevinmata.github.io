@@ -2,6 +2,6 @@
 
 Will be posting more information on here.
 
-Website work well in Edge
+Sign in to Alibaba.com
 
 Don't forget to be sure to check this out.
